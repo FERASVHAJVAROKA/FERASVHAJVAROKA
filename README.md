@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: Email.ferasvhajomar@GAMIL.COM
 - 😄 Pronouns:HE
 - ⚡ Fun fact: langueges i can (circassian,arabic,russian,engilsh.germany)
-- &#128512
+- 
 
